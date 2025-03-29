@@ -34,7 +34,7 @@ Beth didn't worry herself with appearances, let alone makeup, but her point was 
 
 Dawson grabbed two bags and followed her out of the shuttle and into the hangar's enormous cavity. Hundreds of ships filled the hangar, some stacked vertically, some disassembled, and the rest occupying every single square cm of space available.
 
-As Dawson looked forward and saw Harold walking swiftly in front of him, covered in bags as well, scanning quickly between the lanes of ships looking for the engineering team leader responsible for the nautilus. 
+As Dawson looked forward and saw Harold walking swiftly in front of them, covered in bags as well, scanning quickly between the lanes of ships looking for the engineering team leader responsible for the nautilus. 
 
 'I've never seen him like this, what has gotten into him?" 
 
