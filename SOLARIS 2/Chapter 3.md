@@ -128,6 +128,16 @@ Harold shifted uncomfortably in his seat, his sarcastic smile gone.
 
 "Well captain, SOLARIS 2 was meant to orbit the sun, and deliver the payload from said orbit. ²6 is almost certain something must have happened during the payload release. SOLARIS 2 is designed to withstand the heat and radiation of the sun, but us no. Once we enter the suns orbit, our radiation and heat protection will degrade rapidly. We will have roughly 3 days to get in and get out."
 
+Harold slammed the table with a closed fist, his grey stew sloshing onto the table.
+
+"So you're telling me, ONI has us following a babies intuition on where they might be? They know exactly where SOLARIS 2 and they're feeding us red herrings Beth. That crew is as good as dead, all they want is the payload back. The payload that they won't even disclose by the way."
+
+"He has a point"
+
+Beth looked up calmly
+
+"Tunnelling will get us to the Venus hydrogen accumulator for a refuel tomorrow, at that point we are alone. ²6's itinerary has us covered until Venus, and we will complete the trip on hydrogen fuel, or god forbid, solar wind. After Venus our progress will slow down as the nautilus will have to travel 108 million kilometres without CHERUB clairvoyance. That's when we sleep. Hydrogen should get us to mercury in about a year, and solar wind will quadruple that number." 
+
 
 
 
