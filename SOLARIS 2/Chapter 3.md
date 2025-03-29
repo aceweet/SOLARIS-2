@@ -60,7 +60,14 @@ The Nautilus that looked back at him through the thick view port of the hangar w
 
 The retractable re-entry wings had been replaced with solar sails, currently folded up like origami, tightly hugging the flanks of the ship. Solar sails where remarkably slow, and relied on radiation pressure exerted by sunlight onto its large surface area. what would normally be a day long voyage would take them almost 4 and a half years. Dawson had inquired about why they were denied a Cherub nav link for their mission, but Barnes remained tight lipped about the subject. Dawson wasn't payed to ask questions, and they were getting a payment of a lifetime anyways.
 
-On the aft section of the hull he noticed a 4 large hydrogen thrusters. The thrusters were "capable" of recycling the most common element in the universe into fuel, but anybody that had already relied on them knew the bittersweet reality that they rarely worked without large amounts of workarounds and tinkering. Barnes reassured that they would't need to use the solar sails but Dawson knew better. 
+On the aft section of the hull he noticed a 4 large hydrogen thrusters. The thrusters were "capable" of recycling the most common element in the universe into fuel, but anybody that had already relied on them knew the bittersweet reality that they rarely worked without large amounts of workarounds and tinkering. Barnes reassured them that they would't need to use the solar sails but Dawson knew better. Barnes had been in the bridge too long, and seemingly forgot the true conditions of working in deep space.
+
+As the engineers moved in silence with their helmet mounted lights shining spotlights onto the dull shineless hull, battered by many missions, Dawson noticed something that had previously escaped his scrutiny. 
+
+The hull was different. The same, but different. 
+
+While he was squinting out of the viewport and racking his brain as to what could have possibly changed, an engineer chimed in, seemingly aware of exactly what Dawson was thinking about.
+
 
 
 
