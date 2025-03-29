@@ -58,7 +58,9 @@ The Nautilus stood tall, hooked onto the scaffolding outside air lock 165. Too l
 
 The Nautilus that looked back at him through the thick view port of the hangar was not the nautilus he knew just a couple days ago. To the untrained eye, it looked identical to the icebreaker it always was, but to Dawson the ship was almost unrecognisable. 
 
-The retractable re-entry wings had been replaced with solar sails, currently folded up like origami, tightly hugging the flanks of the ship. Solar sails where remarkably slow, and relied on radiation pressure exerted by sunlight onto its large surface area.
+The retractable re-entry wings had been replaced with solar sails, currently folded up like origami, tightly hugging the flanks of the ship. Solar sails where remarkably slow, and relied on radiation pressure exerted by sunlight onto its large surface area. what would normally be a day long voyage would take them almost 4 and a half years. Dawson had inquired about why they were denied a Cherub nav link for their mission, but Barnes remained tight lipped about the subject. Dawson wasn't payed to ask questions, and they were getting a payment of a lifetime anyways.
+
+On the aft section of the hull he noticed a 4 large hydrogen thrusters. The thrusters were "capable" of recycling the most common element in the universe into fuel, but anybody that had already relied on them knew the bittersweet reality that they rarely worked without large amounts of workarounds and tinkering. Barnes reassured that they would't need to use the solar sails but Dawson knew better. 
 
 
 
