@@ -68,9 +68,9 @@ The hull was different. The same, but different.
 
 While he was squinting out of the viewport and racking his brain as to what could have possibly changed, an engineer chimed in, seemingly aware of exactly what Dawson was thinking about.
 
-"Thy she thicka than a rememberance of ya past"
+"Thy she thicka than a rememberance of ya past dontchathink?"
 
-Dawson turned around from hearing the thick patois of the outer colonies. 
+Dawson turned around from hearing the thick patois of the outer colonies. I front of him he saw a very tall man, almost 3 meters tall. 
 
 
 
