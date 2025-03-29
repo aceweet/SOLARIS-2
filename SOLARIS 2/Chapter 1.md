@@ -1,3 +1,7 @@
+*Watch out, pacing. needs more space inbetween story beats*
+
+---
+
 Vessel : UNSC Corvette class logistics base
 Orbit : Earth
 

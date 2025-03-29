@@ -1,3 +1,7 @@
+*I have to rewrite this section, the exposition is awful lmao*
+
+---
+
 Harold sat laying in his bunk. 
 
 Staring

@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "1 Prologue.md",
+                "file": "Chapter 3.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "1 Prologue"
+              "title": "Chapter 3"
             }
           }
         ]
@@ -181,12 +181,12 @@
   },
   "active": "b1151913699c5dd7",
   "lastOpenFiles": [
-    "conflict-files-obsidian-git.md",
-    "1 Prologue.md",
-    "Chapter 3.md",
     "Chapter 2?.md",
-    "Chapter 2.md",
     "Chapter 1.md",
+    "Chapter 3.md",
+    "1 Prologue.md",
+    "conflict-files-obsidian-git.md",
+    "Chapter 2.md",
     "test.md",
     "delete me.md",
     "Welcome.md",
