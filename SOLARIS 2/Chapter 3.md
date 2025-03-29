@@ -68,6 +68,10 @@ The hull was different. The same, but different.
 
 While he was squinting out of the viewport and racking his brain as to what could have possibly changed, an engineer chimed in, seemingly aware of exactly what Dawson was thinking about.
 
+"Thy she thicka than a rememberance of ya past"
+
+Dawson turned around from hearing the thick patois of the outer colonies. 
+
 
 
 
