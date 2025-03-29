@@ -44,7 +44,7 @@ As Dawson looked forward and saw Harold walking swiftly in front of them, covere
 
 "Do you want to tell him that? I sure as hell don't, but i'm not the captain"
 
-"No, you are right. Let's keep it moving Beth."
+"No, you are right. Let's keep it moving."
 
 Beth squeezed his arm and gave him a warm smile.
 
