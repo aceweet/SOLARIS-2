@@ -54,6 +54,11 @@ Dawson followed her, staring at the ground, lost in his thoughts again.
 
 ----
 
+The Nautilus stood tall, hooked onto the scaffolding outside air lock 165. Too large to fit into the hangar, Dawson watched as the engineers floated around his spacecraft, performing last minute checks to ensure their safe departure.
+
+The Nautilus that looked back at him through the thick view port of the hangar was not the nautilus he knew just a couple days ago. To the untrained eye, it looked identical to the icebreaker it always was, but to Dawson the ship was almost unrecognisable. 
+
+The retractable re-entry wings had been replaced with solar sails, currently folded up like origami, tightly hugging the flanks of the ship. Solar sails where remarkably slow, and relied on radiation pressure exerted by sunlight onto its large surface area.
 
 
 
