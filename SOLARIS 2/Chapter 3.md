@@ -68,9 +68,72 @@ The hull was different. The same, but different.
 
 While he was squinting out of the viewport and racking his brain as to what could have possibly changed, an engineer chimed in, seemingly aware of exactly what Dawson was thinking about.
 
-"Thy she thicka than a rememberance of ya past dontchathink?"
+"Why ishe thicka than a rememberance of ya past dontchathink?"
 
 Dawson turned around from hearing the thick patois of the outer colonies. In front of him he saw a very tall man, almost 2,5 meters tall. Wearing blue overalls splotched with various greases and fluids, the man held a very gruff appearance. Thick, vascular arms draped around the man's torso, with a face to match.
+
+"what do you mean?"
+
+"Radiashun" 
+
+The engineers accent was heavy, with rolling r's and the syllables seemingly melting together to form a dialect Dawson unfortunately knew all too well.
+
+"Radiation?"
+
+The engineer beamed an asymmetrically toothless smile and walked a way, singing a song with incomprehensible lyrics as he swung his wrench lazily by his side with every step.
+
+Dawson returned his gaze to the Nautilus, sitting there faithfully, and he understood. The hull was much thicker than usual, the outer walls having grown by at least a meter. The nautilus was already rated for heavy radiation, as it routinely slingshotted it's way past the sun using whatever celestial body it could get it's hands on. But this much protection could only mean one thing. 
+
+They were going to get closer than they ever had before.
+
+---
+
+The nautilus's crew sat calmly around the dinner table enjoying their last meal before going under. Harold, who prided himself in being a great home cook, had prepared for them a lunar delicacy. Some type of stew devoid of meat, and flavour as well. Dawson thought it was bland, but knowing the lunarians, that was the whole point.
+
+"Captain could you do me a favour and look like you actually want to come with us every once in a while? What does a brother have to do? Hang up a pinata and do the cancan?"
+
+Dawson didn't have the heart to say they would probably be gone for much longer than 1 year.
+
+"I'll be sleeping, peacefully. You'll have to hang the pinata over my inanimate body if you want to have your fiesta."
+
+Dawson said with the slightest of smiles
+
+"see, this is the shit that gets to me. You must be great at parties captain."
+
+"The best"
+
+"Get a load of this guy Beth, underneath that hard exterior is just another hard exterior. What a fucking buzzkill."
+
+Beth sat there eating her flavourless lunarian stew, pouring over the mission details that they had all heard 100 times over. She paid no attention to Harold's attempts at lifting the mood.
+
+"Shall we go over it one last time captain?"
+
+She said softly 
+
+"I'm all ears"
+
+Beth sat up straight and cleared her throat. She grabbed the portable terminal and layed it flat on the table.
+
+"Nautilus, commence recording"
+
+"Recording" 
+
+"The UNSC wants us to recover 13 crew members aboard the SOLARIS 2, recover the payload, and bring them back before Barnes retires so he can get his shiny medals. All this is offically for the UNSC, but we all know who is running the show. For OPSEC they won't disclose what the payload is, but I'm sure we'll know it when we see it. SOLARIS 2 stopped transmitting SITREP's a little under 1 year ago, and as Barnes said during the briefing, we have little information as where they can be. CHERUB ²6 has crunched some numbers to help us whittle down the possibilities"
+
+Harold shifted uncomfortably in his seat, his sarcastic smile gone.
+
+"Best case scenario is that they are orbiting mercury after a comms failure. They have enough provisions and life support to survive multiple decades, so in this scenario, they are sitting ducks waiting for uncle sam to pick them up. Worst case scenario, they are all dead and the ship has slingshotted it's way out of the solar system."
+
+"²6 doesn't miss, whats the most likely scenario?"
+
+"Well captain, SOLARIS 2 was meant to orbit the sun, and deliver the payload from said orbit. ²6 is almost certain something must have happened during the payload release. SOLARIS 2 is designed to withstand the heat and radiation of the sun, but us no. Once we enter the suns orbit, our radiation and heat protection will degrade rapidly. We will have roughly 3 days to get in and get out."
+
+
+
+
+
+
+
 
 
 
