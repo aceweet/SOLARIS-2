@@ -21,18 +21,10 @@ Had it already been 6 minutes?
 
 He flicked the nonexsistant ash from the melted filter he was squeezing bewteen his fingers and responded.
 
-  
-
 “Roger, he won’t snap out of it, terminal is stuck in some god forsaken process. Beth do you think you could poke ar…”
 
-  
-
-As he spoke the terminal sprung to life, the screen filled with collumns of seemingly random characters fluttering down the screen. It stopped. Suddenly:
-
-  
+As he spoke the terminal sprung to life, the screen filled with collumns of seemingly random characters fluttering down the screen. It stopped. Suddenly:  
 
 “HI DAWSON DO YOU WANNA PLAY?”
-
-  
 
 Dawson felt like screaming, but the only action he could muster was slowly closing his eyes and pulling a long imaginary hit off his dead cigarette butt.
