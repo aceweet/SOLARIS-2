@@ -72,7 +72,7 @@ While he was squinting out of the viewport and racking his brain as to what coul
 
 Dawson turned around from hearing the thick patois of the outer colonies. In front of him he saw a very tall man, almost 2,5 meters tall. Wearing blue overalls splotched with various greases and fluids, the man held a very gruff appearance. Thick, vascular arms draped around the man's torso, with a face to match.
 
-The outer colonist's genetics had been deeply influenced by their harsh interment. 
+
 
 
 
